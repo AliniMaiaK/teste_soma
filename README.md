@@ -41,7 +41,7 @@ Resultado: 91.
 👊🏻🤘🏻 Desafios que tive:
 Em qual linguagem resolveria esse teste.
 
-Autor: Alini krugeer
+Autora: Alini krugeer
 
 
 
